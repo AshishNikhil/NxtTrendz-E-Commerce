@@ -1,3 +1,3 @@
- **Nxt Trendz - E-Commerce **
+ **Nxt Trendz - E-Commerce**
 
 
