@@ -1,3 +1,3 @@
- **Nxt Trendz - Cart Features**
+ **Nxt Trendz - E-Commerce **
 
 
